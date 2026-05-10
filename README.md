@@ -7,7 +7,7 @@
 ---
 
 ## 🐱 大喵影视入口
-👉 🌐 https://www.damiaotv.cc
+👉 🌐 www.damiaotv.cc
 
 💡 建议收藏导航链接，防止走丢哦～  
 毕竟好看的剧，可不能错过 🐾
